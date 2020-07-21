@@ -1,4 +1,4 @@
-### Hi there 👋
+### Bonjour, I'm Padman. 👋
 
 - 🌱 I’m currently learning Kotlin && Java
 
