@@ -1,6 +1,6 @@
 ### Bonjour, I'm Padman. 👋
 
-- 🌱 I’m currently learning Kotlin && Java
+
 
 <!--
 **Padman83/Padman83** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
