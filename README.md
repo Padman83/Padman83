@@ -1,6 +1,6 @@
 ### Hi, I'm Padman. Welcome to my profile 🥳
 - 🌱 I’m currently learning TypeScript, React
-- ⚡ Fun fact: Yoga + Doodling + Sketching + Dog and Cat Person + Listens to 80's Rock & Pop + State of Trance
+- ⚡ Fun fact: Yoga + Doodling + Sketching + Dog and Cat Person + Listens to 80's Rock & Pop + State of Trance and can't stop laughing with Impractical Jokers.
 
 - How to reach me:
 - 📫 Linkedin: www.linkedin.com/in/padman-selvamanickam 
