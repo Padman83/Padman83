@@ -1,7 +1,10 @@
-### Good Day Everbody 🥳 i'm Padman. 👋
+### Hi, I'm Padman. Welcome to my profile 🥳
+- 🌱 I’m currently learning TypeScript, React
+- ⚡ Fun fact: Yoga + Doodling + Sketching + Dog and Cat Person + Listens to 80's Rock & Pop + State of Trance
 
-
-
+- How to reach me:
+- 📫 Linkedin: www.linkedin.com/in/padman-selvamanickam 
+- 📫 Gmail: endlessgalaxy15@gmail.com
 <!--
 **Padman83/Padman83** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
