@@ -1,6 +1,6 @@
 ### Bonjour! I'm Padman. Welcome to my profile 🥳
 - 🌱 I’m currently learning TypeScript.
-- 📚 Self-Development: Practise Yoga + Doodling + Sketching + Reads Design, Motivational Books + Listens to 80's 90's 2000's Rock & Pop & Rap + State of Trance and can't stop laughing with Impractical Jokers 🤣
+- 📚 Self-Development: Doodling + Sketching + Reads Fiction and Non-fiction Books + Listens to 80's 90's 2000's Rock & Pop & Rap + State of Trance and can't stop laughing with Impractical Jokers 🤣
 
 - How to reach me:
 - 📫 Linkedin: www.linkedin.com/in/padman-selvamanickam 
