@@ -2,7 +2,7 @@
 - 🌱 I’m currently learning TypeScript.
 - 📚 Self-Development: Doodling + Sketching + Reads Fiction and Non-fiction Books + Listens to 80's 90's 2000's Rock & Pop & Rap + State of Trance and can't stop laughing with Impractical Jokers 🤣
 
-- How to reach me:
+- Any questions, suggestions, or just want to chat feel free to connect:
 
 [<img src="https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white" />][LinkedIn]
 [<img src="https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white" />][gmail] 
