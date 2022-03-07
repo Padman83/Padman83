@@ -1,5 +1,5 @@
 ### 🙏  I'm Padman. Welcome to my profile 🥳
-- 🌱 I’m currently learning TypeScript.
+- 🌱 Always learning.
 - 📚 Self-Development: ✏️ Sketching + Reads Fiction and Non-fiction 📚 + Listens to 80's 90's 2000's Heavy Metal & Pop & Country & Rap + Trance + Techno and can't stop laughing with Impractical Jokers 🤣
 
 - Any questions, suggestions, or just want to chat feel free to connect:
