@@ -1,6 +1,6 @@
 ### 🙏  I'm Padman. Welcome to my profile 🥳
-- 🌱 Always learning.
-- 📚 Self-Development: ✏️ Sketching + Reads Fiction and Non-fiction 📚 + Listens to 80's 90's 2000's Heavy Metal & Pop & Country & Rap + Trance + Techno and can't stop laughing with Impractical Jokers 🤣
+- 🌱  Always Learning Mode.
+- 📚 Self-Development: ✏️ Sketching + Reads Fiction and Non-fiction 📚 +  LOVES 🎵 80'| 90's Heavy Metal + Trance + Techno and can't stop laughing with Impractical Jokers 🤣
 
 - Any questions, suggestions, or just want to chat feel free to connect:
 
