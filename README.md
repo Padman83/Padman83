@@ -1,6 +1,6 @@
 ### 🙏  I'm Padman. Welcome to my profile 🥳
 - 🌱  Always Learning Mode.
-- 📚 Self-Development: ✏️ Sketching + 📚 Fiction and Non-fiction + LOVES 🎵 80'| 90's Metal | Classic Rock | Ballads + Blues | Trance | Synthwave and can't stop laughing with Impractical Jokers 🤣🤣🤣
+- 📚 Self-Development: ✏️ Sketching + 📚 Fiction and Non-fiction + LOVES 🎵 80'| 90's Metal | Classic Rock + NeoClassical | Ballads + Blues | Trance | Synthwave and can't stop laughing with Impractical Jokers 🤣🤣🤣
 
 - Any questions, suggestions, or just want to chat feel free to connect:
 
