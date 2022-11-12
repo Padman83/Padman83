@@ -1,6 +1,10 @@
 ### 🙏  I'm Padman. Welcome to my profile 🥳
+
+- 🔭  OpenSource Fan.
+- 💻  Focused on Web + Mobile Development.
 - 🌱  Always Learning Mode.
-- 📚 Self-Development: ✏️ Sketching + 📚 Fiction and Non-fiction + LOVES 🎵 80'| 90's Metal | Classic Rock + NeoClassical Metal | Ballads + Blues | Trance + Techno | Synthwave and can't stop laughing with Impractical Jokers 🤣🤣🤣
+- 📚  Self-Development: ✏️ Sketching + 📚 Spirituality, Technology, Productivity, Cooking + Baking and all Marvel and DC Comics. 
+- 🎵  80'| 90's All Genre's of Rock | Metal | Neoclassical | Blues | Jazz | Classic Trance, Techno and Synthwave and can't stop laughing with Impractical Jokers 🤣🤣🤣
 
 - Any questions, suggestions, or just want to chat feel free to connect:
 
