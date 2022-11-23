@@ -4,7 +4,7 @@
 - 💻  Focused on ⚛ Web +📱Mobile Development.
 - 🌱  Always Learning Mode.
 - 📚  Self-Development: 🎸🎵🤘 ✏️ Sketching + 📚 Spirituality, Technology, Productivity, Cooking + Baking and all Marvel and DC Comics. 
-- 🎵  80'| 90's 🎧 All Genre's of Rock  |  Metal |  Neoclassical |  Blues |  Jazz |  Classic Trance, Techno and Synthwave and can't stop laughing with   Impractical Jokers 🤣🤣🤣
+- 🎵  80'| 90's 🎧 All Genre's of Blues |  Rock |  Metal |  Neoclassical | Jazz |  Classic Trance, Techno and Synthwave and can't stop laughing with   Impractical Jokers 🤣🤣🤣
 
 - Any questions, suggestions, or just want to chat feel free to connect:
 
