@@ -1,8 +1,7 @@
 ### 🙏  I'm Padman. Welcome to my profile 🥳
 
-- 🔭  OpenSource Fan.
-- 💻  Focused on ⚛ Web +📱Mobile Development.
-- 🌱  Always Learning Mode.
+- 🌱 🔭 Always Learning Mode | 📖  OpenSource Fan.
+- 💻  Focused on ⚛ Web +📱Mobile Development + 📖📓📚📝✍️✅💯🎓 DevOps and Cloud engineering
 - 📚  Self-Development: 🎸🎵🤘✏️📚 Spirituality, Curious 🍳 Cooker + Random 🍰 Baker
 - 🎵  80'| 90's 🎧 All Genre's of Blues |  Rock |  Metal |  Neoclassical | Jazz |  Classic Trance, Techno and Synthwave and can't stop laughing with   Impractical Jokers 🤣🤣🤣
 
