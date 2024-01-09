@@ -3,7 +3,7 @@
 - 🌱 🔭  Always Learning Mode | 📖  OpenSource Fan.
 - 💻  Web + 📱 Mobile + 📖📓📚📝✍️✅💯🎓 DevOps and Cloud engineering
 - 📚  Self-Development: 🎸🎵🤘✏️📚 Spirituality, Curious 🍳 Cooker + Random 🍰 Baker
-- 🎵  80'| 90's 🎧 All Genre's of Blues |  Rock |  Metal |  Neoclassical | Jazz |  Classic Trance, Techno and Synthwave and can't stop laughing with   Impractical Jokers 🤣🤣🤣
+- 🎵  50' | 60' | 70' | 80' | 90's 🎧 All Genre's of Blues |  Rock |  Metal |  Neoclassical | Jazz |  Classic Trance, Techno and Synthwave and can't stop laughing with   Impractical Jokers 🤣🤣🤣
 
 - Any questions, suggestions, or just want to chat feel free to connect:
 
